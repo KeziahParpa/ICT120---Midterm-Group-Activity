@@ -1,0 +1,1 @@
+# ICT120---Midterm-Group-Activity
